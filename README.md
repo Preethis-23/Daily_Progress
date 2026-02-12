@@ -1,1 +1,1 @@
-This is the just a folder keep track of my daily progress
+This is the just a folder keep track of my daily progress :)
